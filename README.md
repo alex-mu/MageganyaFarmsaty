@@ -1,1 +1,1 @@
-# MageganyaFarmsaty
+# MageganyaFarmstay
